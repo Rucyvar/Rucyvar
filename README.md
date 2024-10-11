@@ -20,4 +20,4 @@ Currently, I'm looking for opportunities to grow and apply my skills in a collab
 - Email: [rushivasoya.coder@gmail.com](mailto:rushivasoya.coder@gmail.com)
 - LinkedIn: [Rushi Vasoya](https://www.linkedin.com/in/vasoyarushi/)
 ## 🌐 Socials:
-(https://discord.com/invite/sj8TxYAf) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/vasoyarushi/)[![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/RushiVasoya?t=eJrtUr-OMnmZuIIeJfhiDg&s=08) 
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/vasoyarushi/)[![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/RushiVasoya?t=eJrtUr-OMnmZuIIeJfhiDg&s=08) 
