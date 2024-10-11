@@ -19,3 +19,5 @@ Currently, I'm looking for opportunities to grow and apply my skills in a collab
 ## 📫 How to reach me
 - Email: [rushivasoya.coder@gmail.com](mailto:rushivasoya.coder@gmail.com)
 - LinkedIn: [Rushi Vasoya](https://www.linkedin.com/in/vasoyarushi/)
+## 🌐 Socials:
+[![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.com/invite/sj8TxYAf) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://linkedin.com/in/kavya-kartik-734285246/)[![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/https://twitter.com/@Kavya_Kartik_) 
